@@ -1,1 +1,1 @@
-#### knowledge builder, entrepreneur
+#### multidisciplinary in sarcasm. developer, designer.
