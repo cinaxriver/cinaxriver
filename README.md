@@ -1,1 +1,1 @@
-#### multidisciplinary in sarcasm. developer, designer.
+#### multidisciplinary in sarcasm. designer & software engineer.
