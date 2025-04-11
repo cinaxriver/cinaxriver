@@ -1,5 +1,5 @@
-praxis - toujours apprenti
+toujours apprenti
 
-building [CladeClub](https://clade.club) & [Rewinds](https://rewinds.xyz)
+building a new [world](https://clade.world)
 
 [mail](mailto:cinax@clade.club)
